@@ -1,7 +1,7 @@
 <div align="center">
 
 
-[Năm Ấy Tui Mở Vườn Bách Thú](https://truyenchuhub.com/truyen/Nam-y-Tui-Mo-Vuon-Bach-Thu) - [Top truyện đam mỹ hay nhất](https://truyenchuhub.com/danhsach/truyen-dam-my-hay)
+[Năm Ấy Tui Mở Vườn Bách Thú](https://tutruyenchu.com/truyen/Nam-y-Tui-Mo-Vuon-Bach-Thu) - [Top truyện đam mỹ hay nhất](https://tutruyenchu.com/danhsach/truyen-dam-my-hay)
 </div>
 
 Thể loại: Hồng hoang, huyền huyễn, hiện đại, thần tiên yêu quái, làm giàu, sảng văn, chậm nhiệt, HE
